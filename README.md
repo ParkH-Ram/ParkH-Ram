@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-# Hello My name is ParkH-Ram! 😸 💪
+# Hello I'm Ram 😸 💪
 ## go to the gym bro!!    💪 💪
 
 
