@@ -42,8 +42,6 @@
 [![Gmail Badge](https://img.shields.io/badge/Gmail-d14836?style=flat-square&logo=Gmail&logoColor=white&link=mailto:parkeryangga@gmail.com)](mailto:parkeryangga@gmail.com)
 
 
-# 나마스떼...
-![image](https://previews.123rf.com/images/jemastock/jemastock1704/jemastock170401666/75346751-man-doing-yoga-cartoon-icon-over-white-background-colorful-design-vector-illustration.jpg)
 
 
 
